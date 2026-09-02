@@ -1,16 +1,30 @@
-## Hi there 👋
+# Oleksandr Natiahlyi
 
-<!--
-**oleksandr-natiahlyi/oleksandr-natiahlyi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Verwaltung · Sachbearbeitung · Rechnungswesen · internationale Berufserfahrung**
 
-Here are some ideas to get you started:
+📍 Münster, Deutschland
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Ich bin Bachelorabsolvent im Bereich Rechnungswesen und Besteuerung mit ZAB-Zeugnisbewertung auf deutscher Bachelor-Ebene. Berufliche Erfahrung habe ich in Verwaltung, Sachbearbeitung, internationaler Logistik sowie in unterschiedlichen Arbeitsumfeldern in Deutschland, den Niederlanden, Ungarn und der Ukraine gesammelt.
+
+## Schwerpunkte
+
+- Verwaltung und strukturierte Sachbearbeitung
+- Rechnungswesen, Abrechnung und Datenpflege
+- Excel-Listen, Statistiken und Auswertungen
+- Dokumentenmanagement und Terminorganisation
+- Serviceorientierte Kommunikation per E-Mail, Telefon und persönlich
+- Internationale Berufserfahrung und Zusammenarbeit in unterschiedlichen Teams
+
+## Aktuell
+
+Ich engagiere mich beim **DRK Kreisverband Münster e.V.** und sammle praktische Erfahrung im Verwaltungs- und Organisationsbereich. Darüber hinaus bin ich ehrenamtlich aktiv.
+
+## Kontakt & Profile
+
+🌐 [natiahlyi.de](https://natiahlyi.de)  
+💼 [LinkedIn](https://www.linkedin.com/in/oleksandr-natiahlyi)  
+✉️ [oleksandr@natiahlyi.de](mailto:oleksandr@natiahlyi.de)
+
+---
+
+*Interessen: Verwaltung · Sachbearbeitung · Rechnungswesen · Organisation · internationale Zusammenarbeit*
