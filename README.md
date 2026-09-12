@@ -4,7 +4,7 @@
 
 📍 Münster, Deutschland
 
-Ich bin Bachelorabsolvent im Bereich Rechnungswesen und Besteuerung mit ZAB-Zeugnisbewertung auf deutscher Bachelor-Ebene. Berufliche Erfahrung habe ich in Verwaltung, Sachbearbeitung, internationaler Logistik sowie in unterschiedlichen Arbeitsumfeldern in Deutschland, den Niederlanden, Ungarn und der Ukraine gesammelt.
+Ich bin Bachelorabsolvent im Bereich Rechnungswesen und Besteuerung mit ZAB-Zeugnisbewertung auf deutscher Bachelor-Ebene. Berufliche Erfahrung habe ich in Verwaltung, Sachbearbeitung und internationaler Logistik sowie in unterschiedlichen Arbeitsumfeldern in Deutschland, den Niederlanden, Ungarn und der Ukraine gesammelt.
 
 ## Schwerpunkte
 
@@ -15,9 +15,11 @@ Ich bin Bachelorabsolvent im Bereich Rechnungswesen und Besteuerung mit ZAB-Zeug
 - Serviceorientierte Kommunikation per E-Mail, Telefon und persönlich
 - Internationale Berufserfahrung und Zusammenarbeit in unterschiedlichen Teams
 
-## Aktuell
+## DRK Münster
 
-Ich engagiere mich beim **DRK Kreisverband Münster e.V.** und sammle praktische Erfahrung im Verwaltungs- und Organisationsbereich. Darüber hinaus bin ich ehrenamtlich aktiv.
+Mein **Freiwilliges Soziales Jahr (FSJ) im Bereich Verwaltung / Administration beim DRK-Kreisverband Münster e. V.** habe ich von August 2025 bis September 2026 absolviert.
+
+Mein ehrenamtliches Engagement beim DRK Münster führe ich fort: Seit Juli 2025 engagiere ich mich im Bereich **Blutspende**. Seit September 2026 bin ich zusätzlich im **Katastrophenschutz** ehrenamtlich aktiv.
 
 ## Kontakt & Profile
 
