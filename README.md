@@ -23,6 +23,10 @@ Mein ehrenamtliches Engagement beim DRK Münster führe ich fort: Seit Juli 2025
 
 Teilnahme an der Fachdienstausbildung Sanitätsdienst (64 Unterrichtseinheiten) beim DRK-Kreisverband Münster e. V. vom 05.09. bis 27.09.2026 ist bescheinigt. Schriftliche Prüfung und Reanimation am 10.10.2026 bestanden; die Wiederholungsprüfung der praktischen Fallbeispiele steht noch aus. Die Gesamtprüfung ist noch nicht bestanden.
 
+## Deutsch – laufende Weiterbildung
+
+C1-Deutschkurs an der KAPITO Sprachschule, Eisenbahnstraße, Münster (05.10.–18.12.2026), mit Vorbereitung auf telc Deutsch C1 Hochschule. Prüfung am 17. und 18.12.2026 geplant. Nachgewiesenes Deutschniveau: B2.
+
 ## Kontakt & Profile
 
 🌐 [natiahlyi.de](https://natiahlyi.de)  
