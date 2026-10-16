@@ -25,7 +25,7 @@ Teilnahme an der Fachdienstausbildung Sanitätsdienst (64 Unterrichtseinheiten) 
 
 ## Deutsch – laufende Weiterbildung
 
-C1-Deutschkurs an der KAPITO Sprachschule, Eisenbahnstraße, Münster (05.10.–18.12.2026), mit Vorbereitung auf telc Deutsch C1 Hochschule. Prüfung am 17. und 18.12.2026 geplant. Nachgewiesenes Deutschniveau: B2.
+C1-Deutschkurs an der KAPITO Sprachschule (05.10.–18.12.2026), mit Vorbereitung auf telc Deutsch C1 Hochschule. Prüfung am 17. und 18.12.2026 geplant. Nachgewiesenes Deutschniveau: B2.
 
 ## Kontakt & Profile
 
