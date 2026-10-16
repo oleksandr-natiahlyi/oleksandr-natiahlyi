@@ -21,6 +21,8 @@ Mein **Freiwilliges Soziales Jahr (FSJ) im Bereich Verwaltung / Administration b
 
 Mein ehrenamtliches Engagement beim DRK Münster führe ich fort: Seit Juli 2025 engagiere ich mich im Bereich **Blutspende**. Seit September 2026 bin ich zusätzlich im **Katastrophenschutz** ehrenamtlich aktiv.
 
+Teilnahme an der Fachdienstausbildung Sanitätsdienst (64 Unterrichtseinheiten) beim DRK-Kreisverband Münster e. V. vom 05.09. bis 27.09.2026 ist bescheinigt. Schriftliche Prüfung und Reanimation am 10.10.2026 bestanden; die Wiederholungsprüfung der praktischen Fallbeispiele steht noch aus. Die Gesamtprüfung ist noch nicht bestanden.
+
 ## Kontakt & Profile
 
 🌐 [natiahlyi.de](https://natiahlyi.de)  
